@@ -28,7 +28,8 @@ OUTPUT:-
 
 ![image](https://github.com/pmsolanki23/Mad_practical_11_21012011142../assets/139521191/c89171b0-dbdb-415a-aba5-33cb62d505ff)
 
-![image](https://github.com/pmsolanki23/Mad_practical_11_21012011142../assets/139521191/c1e91590-43a8-4547-85c4-1c5481ff16c3)
+![image](https://github.com/pmsolanki23/Mad_practical_11_21012011142../assets/139521191/6e99c0b0-b566-4742-844e-8c52f3c4438f)
+
 
 
 
